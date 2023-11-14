@@ -10,12 +10,10 @@ Meu nome é Tiago
 
 fidelis.tiago@escola.pr.gov.br
 
-@tiago_fidelis138
-
-![](https://i.gifer.com/4Snl.mp4)
+@tiago_fidelis
 
 
 
-
+![](https://media.tenor.com/7t63GFnoIPUAAAAd/huh-cat-huh-m4rtin.gif)
 
 
